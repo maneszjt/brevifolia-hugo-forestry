@@ -1,43 +1,101 @@
 ---
-title: Sunflower Sutra
-date: 2019-07-16T19:17:43.000+00:00
+title: Toadside
+date: 2019-07-16T19:17:43+00:00
 type: blog
-hero: "/images/adrien-olichon--aOsCcTJXWY-unsplash.jpg"
+hero: "/images/img_6914.JPG"
 author: Allen Ginsberg
 
 ---
-I walked on the banks of the tincan banana dock and sat down under the huge shade of a Southern Pacific locomotive to look for the sunset over the box house hills and cry.
+![A toad sitting on the road.](/images/img_6914.JPG "Toadside")
 
-Jack Kerouac sat beside me on a busted rusty iron pole, companion, we thought the same thoughts of the soul, bleak and blue and sad-eyed, surrounded by the gnarled steel roots of trees of machinery.
+“She’s just trying to meet you halfway, you know, which is gonna take both of you meeting — hang on.”
 
-![](/images/elcarito-CRn-_80z4SE-unsplash.jpg)
+The rumble came on through the bitumen harder and closer and one of them kept by the crumbling edge while the other jumped out further into almost the middle and the car came by and the chassis passed them over and continued.
 
-The only water on the river mirrored the red sky, sun sank on top of final Frisco peaks, no fish in that stream, no hermit in those mounts, just ourselves rheumy-eyed and hung-over like old bums on the riverbank, tired and wily.
+“I hate when you do that,” said the one on the dirt and the one on the road said, “But it’s always fine, see?”
 
-Look at the Sunflower, he said, there was a dead gray shadow against the sky, big as a man, sitting dry on top of a pile of ancient sawdust--
+“For you,” the dirtside one conceded and the one on the road hopped closer so it didn’t have to yell.
 
-\--I rushed up enchanted--it was my first sunflower, memories of Blake--my visions--Harlem
+“Yea,” the one on the road as he settled into a warm spot where the sun had baked the bitumen all day. “What was I saying?”
 
-# "the gray Sunflower poised against the sunset, crackly bleak and dusty with the smut and smog and smoke of olden locomotives in its eye"
+“I dunno.”
 
-and Hells of the Eastern rivers, bridges clanking Joes greasy Sandwiches, dead baby carriages, black treadless tires forgotten and unretreaded, the poem of the riverbank, condoms & pots, steel knives, nothing stainless, only the dank muck and the razor-sharp artifacts passing into the past--
+The roar of the car disappeared around the corner and they listened for a soft noise through the wind through the trees but didn’t hear it even though they’d expected it for ages.
 
-and the gray Sunflower poised against the sunset, crackly bleak and dusty with the smut and smog and smoke of olden locomotives in its eye--
+“I keep thinking they’ll get Bill,” the one off the road said, “because he sits in that dumb spot. Right where the tyres go.”
 
-corolla of bleary spikes pushed down and broken like a battered crown, seeds fallen out of its face, soon-to-be-toothless mouth of sunny air, sunrays obliterated on its hairy head like a dried wire spiderweb,
+“The tread warms fast and it feels good in the evening. And he’s been fine so far.”
 
-leaves stuck out like arms out of the stem, gestures from the sawdust root, broke pieces of plaster fallen out of the black twigs, a dead fly in its ear,
+“One day though.”
 
-Unholy battered old thing you were, my sunflower O my soul, I loved you then!
+“Aren’t you cold over there?”
 
-![](/images/francesco-mazzoli-0xh3QPqcfKM-unsplash.jpg)
+“Nah, mate. Just fine.”
 
-The grime was no man's grime but death and human locomotives,
+“Try it some time,” the one on the road said. “Coming out here during the day. It’s safer than at night. They see us better now.”
 
-all that dress of dust, that veil of darkened railroad skin, that smog of cheek, that eyelid of black mis'ry, that sooty hand or phallus or protuberance of artificial worse-than-dirt--industrial--modern--all that civilization spotting your crazy golden crown--
+“What are you talking about?”
 
-and those blear thoughts of death and dusty loveless eyes and ends and withered roots below, in the home-pile of sand and sawdust, rubber dollar bills, skin of machinery, the guts and innards of the weeping coughing car, the empty lonely tincans with their rusty tongues alack, what more could I name, the smoked ashes of some cock cigar, the cunts of wheelbarrows and the milky breasts of cars, wornout asses out of chairs & sphincters of dynamos--all these
+“Watch.”
 
-entangled in your mummied roots--and you standing before me in the sunset, all your glory in your form!
+They could feel the traffic pass by at the end of the road before it snaked off around the bend behind the trees and they knew without having to look — even though they still looked because safety first is a universal principle — that another car was coming.
 
-A perfect beauty of a sunflower! a perfect excellent lovely sunflower existence! a sweet natural eye to the new hip moon, woke up alive and excited grasping in the sunset shadow sunrise golden monthly breeze!
+Our roadbound toad just waited. His eyes dry. He blinked sideways. The driver couldn’t tell.
+
+“C’mon, man,” the dirtside one pleaded to no avail as the car raced by without that sound that seems soft inside the vehicle but is hard, mean, heavy outside of it. No rubber meeting lumpy skin.
+
+“See?”
+
+“… Yes.”
+
+“C’mon.”
+
+But the dirtside toad was still convinced. Amphibians made for the rains and the edges of the dams that watered the horses and the wallabies and the rabbits when they weren’t poisoned then claimed by the weeds. Not the road.
+
+But he hopped out anyway. The sun still high overhead for now.
+
+“That’s it,” his friend said. “We’ll come back in at sunset. Promise.”
+
+“Alright,” he said. “Alright.” And he hopped over feeling the warm road beneath his thick skin energising his cold blood like caffeine.
+
+“See?”
+
+“Yea.” Artifice holding the heat more than the natural, the trees and the dirt and the water stifling rather than preserving but the peak of summer still to come in which it would appreciate the shade. The arriving spring spoiling the reliable cool gift.
+
+“Now what?”
+
+“Just enjoy it.”
+
+“And the cars?”
+
+“Move when they come.”
+
+“Is that all?”
+
+“Yea.”
+
+“And what if they swerve to hit us?”
+
+“They don’t do it that often. But if they do, predict it.”
+
+“How?”
+
+“You’ll see.”
+
+“Right.”
+
+On cue: A car turned left onto their road. The formerly dirtside toad could not stop its nervous tongue flicking out and up and over to wipe the gel off its eyes and dry them out to see in detail the roaring treads approach.
+
+“Relax,” said the toad from the road. But the dirtside toad did not. He started hopping left. Eyed the car and suspected a chase. Hopped right. The roadward toad said: “They’re drawn to that. Like moths to…”
+
+“I get it.”
+
+So the dirtside toad, with warm, twitching toes and the sun high over his back running strength up his soft spine, paused and held still as the roaring of the car came up through all of him.
+
+And it passed right by. The tyres separating the two toads from each other by sight. Life kept on.
+
+“See?”
+
+“… I get it.”
+
+So there they stayed for a time. The noise of the cars faded as the rush hour did and the cicadas filled the air again as flies and mosquitos returned to the air and the toads looked about for food in the twilight of the sun as it began to fall.
