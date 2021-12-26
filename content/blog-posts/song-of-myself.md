@@ -1,34 +1,40 @@
 ---
-title: Song of Myself
-date: 2019-07-11T19:17:43.000+00:00
+title: Climbing
+date: 2021-12-12T19:17:43+00:00
 type: blog
-hero: "/images/ren-ran-bBiuSdck8tU-unsplash.jpg"
-author: Walt Whitman
+hero: "/images/climbing-a-short-story.jpg"
+author: Zac van Manen
 
 ---
-I have heard what the talkers were talking, the talk of the  
-beginning and the end
 
-But I do not talk of the beginning or the end. There was never any more inception than there is now, Nor any more youth or age than there is now, And will never be any more perfection than there is now,  
-Nor any more heaven or hell than there is now.
+![](/images/climbing-a-short-story.jpg)
 
-Urge and urge and urge, Always the procreant urge of the world.  
-Out of the dimness opposite equals advance, always substance and  
-increase, Always a knit of identity, always distinction, always a breed of life. To elaborate is no avail, learn'd and unlearn'd feel that it is  
-so.
+He was in one of those travel stores named for mountains and the attendant had walked him over to the ice pick range where he perused them without a word as they hung on long horizontal hooks supported by thick plastic heads around the sharp ends of the picks.
 
-Sure as the most certain sure, plumb in the uprights, well entretied, braced in the beams, Stout as a horse, affectionate, haughty, electrical, I and this mystery here we stand.
+“Can I help you with anything else, sir?” The attendant asked and the shopper replied with a polite, “No, thank you,” and everyone was left again to their own devices.
 
-Clear and sweet is my soul, and clear and sweet is all that is not my soul.
+The attendant had asked him what they were for as they were coming over and he’d said, “For a trip soon,” and the attendant had asked, “Where?” and the shopper had said, “I’m not sure.” There were policies in place to prevent the purchases intended for violence and the attendant kept that note in mind and, when he retreated away from the shopper to let him browse, kept him not far enough away that anything would be a surprise.
 
-![](/images/igor-son-FV_PxCqgtwc-unsplash.jpg)
+To skip ahead and spoil perhaps some tension, this does not come to violence.
 
-Lack one lacks both, and the unseen is proved by the seen,  
-Till that becomes unseen and receives proof in its turn.
+Instead the shopper simply scanned the aisle and took laps up and down it as he wondered whether he would want a premium pick or a mid-range pick or a cheap pick but he was concerned quickly that the cheap pick would break somehow and cause quite a mess so he only looped the middle and higher ends of the aisles.
 
-Showing the best and dividing it from the worst age vexes age,  
-Knowing the perfect fitness and equanimity of things, while they discuss I am silent, and go bathe and admire myself.
+He examined one that was lean and reinforced at the head, one whose steel had a glint even in the dull halogen retail light. He wondered for a moment if he could see himself in it and so he put it back, unwilling to be perceived by the instrument. That kind of thinking had driven him here. He thought that himself - it is not just illustration offered by a narrator. Nevertheless.
 
-Welcome is every organ and attribute of me, and of any man hearty and clean, Not an inch nor a particle of an inch is vile, and none shall be less familiar than the rest.
+He took another pick off its hook, with some trouble, the thick plastic catching on the yellowed price tag, and the attendant appeared at the end of the aisle to check in at the crackling sounds of getting it off.
 
-I am satisfied—I see, dance, laugh, sing; As the hugging and loving bed-fellow sleeps at my side through the night, and withdraws at the peep of the day with stealthy tread. Leaving me baskets cover'd with white towels swelling the house with their plenty, Shall I postpone my acceptation and realization and scream at my eyes, That they turn from gazing after and down the road, And forthwith cipher and show me to a cent, Exactly the value of one and exactly the value of two, and which is ahead?
+“Are you all alright?”
+
+“Of course.”
+
+The shopper had his pick freed. The attendant proceeded to do a false lap to keep an eye on his only customer.
+
+This pick had a blue weave that ran through the middle of the sharp end across the head and down the haft that promised, according to the cardboard trapped in the packaging like amber, to ensure visibility and stability in the cold white. A description complete with a picture. Our shopper unconvinced. Suspected he would lose it in the event of its intended use but he did not really plan on doing much of that afterwards.
+
+He placed it back with care and without summoning the attendant and he browsed for a moment longer, caught somehow on the range available, and then his eyes caught on one emblazoned with a red and white sticker with black felt across that read, “Recommended by the team,” with a thumb up from a doughy, too-round hand.
+
+He took that one without much thinking about how it was a bit more thin than the others but that might be better in the end though it could because it held within some tensile strength that would hold and hold and hold and as both his hands clenched tight around its neck he wondered if he would hold and hold and hold.
+
+The attendant met him again at the counter and scanned the pick and asked some questions that aren’t important and our shopper caught, in that moment when the reverse-facing screen came to white life with the price and the list of item(s), himself in the black that faded away.
+
+That moment lingered and our shopper paid mindlessly as he kept looking to his own brief ghost, looking at the soft pink spots in the corner of his eyes, wondering whether this would all fade with the rest if he did it just right.
