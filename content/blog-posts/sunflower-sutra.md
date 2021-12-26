@@ -1,9 +1,9 @@
 ---
 title: Toadside
-date: 2019-07-16T19:17:43+00:00
+date: 2021-12-19T19:17:43+00:00
 type: blog
 hero: "/images/img_6914.JPG"
-author: Allen Ginsberg
+author: Zac van Manen
 
 ---
 ![A toad sitting on the road.](/images/img_6914.JPG "Toadside")
